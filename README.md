@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alecogni.
+- 👀 I’m interested in coding , programming and scripting.
+- 📫 How to reach me alessandrocognigni2004@gmail.com
